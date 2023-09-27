@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @UttkarshKhanke
-- 👀 I’m interested in Codind
+- 👀 I’m interested in Coding
 - 🌱 I’m currently learning Java
 - 💞️ I’m looking to collaborate on with new companies
 - 📫 How to reach me on Instagram-->https://www.instagram.com/uttkarsh_Khanke/
